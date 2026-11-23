@@ -1,6 +1,6 @@
 ## Hi I'm Sharmila P.
 
-B.Tech Information Technology Student at Saveetha Engineering College.Studyi
+B.Tech Information Technology Student at Saveetha Engineering College.Studying 3rd year
 
 **About Me**
 
